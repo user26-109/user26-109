@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @user26-109 Heisenberg
 - 👀 I’m interested in flipper and kali linux
-- 📫 How to reach my discord : shuka0158
+- 📫 How to reach my discord: shuka0158
 - 😄 Pronouns: he/him
 - ⚡ Fun fact: I AM w.w. now, SAY MY NAME!
 
